@@ -13,3 +13,15 @@ I hope you will join me on this journey and hope that I can answer any questions
 
 Anna 
 
+Blogpost #2
+
+
+Imagine a summertime barbeque with the sounds of a perfect steak sizzling on the grill as you flip it over and the fragrant aromas that it sends into the air. When you are grilling your steak do you ever think about where it came from? No, not the grocery store that it came from but where it actually originated?
+
+A lot of time and hard labor goes into the steak that is making your mouth water. Time and labor given by a hard working and determined farmers. Farmers work in the scorching heat of the summer and in the frigid temperature of the winter in order to provide for the animals that produce the beef that you put off of your grill and put on your table. So, what exactly do farmers do to produce the quality beef you buy in the store? In order to understand this, we first need to explain some beef cattle terminology. 
+
+There are four major cattle terms that you need to know in order to understand a beef cattle operation, these are heifers, cows, steers and bulls. Heifers are young females that are on track to becoming new mothers. Mature female cattle achieve ‘cow’ status when they have had two or more calves. Steers are a castrated male cow and bulls are an uncastrated male cow that is used for breeding purposes.
+
+Okay, now that we have some basic terminology we can jump back in! The process of producing the beef that you buy in the store starts with the farmer deciding when he would like his cattle to calve. Would it be better for his cows to calve in the spring, in the fall or both? In order to determine this the farmer looks at two major things, when his cows are able to be bred and when the cattle prices are projected to be the highest. This often referred to as the cattle cyle which we will discuss next time!
+
+
